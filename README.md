@@ -1,0 +1,2 @@
+# Best-Marketplace-in-Nigeria
+BuySalesPrice has stood out with some of its website features that gives them an edge over other Marketplaces.Some of those features includes video advertising, auction selling of items, and verification badge given to genuine and verified sellers. The marketplace https://www.buysalesprice.com is gradually Topping the chat and would soon become number 1 in the country as many people now prefers them to others.
